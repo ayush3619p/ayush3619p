@@ -7,6 +7,7 @@
 - 🎨 Design & Creative Skills: **CAD**, **Blender**, **Sketching**  
 - ⚽ Hobbies: **Football**, sketching  
 - 🚀 Future Focus: **AI & Machine Learning**
+- 🐈 I am a **FELINOPHILE**
 
 Always exploring new technologies, combining coding with design, and building projects that make an impact!
 
